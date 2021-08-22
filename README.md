@@ -1,0 +1,3 @@
+The recipe is how to make snake juice, it is something I made for my grade 7 project.
+
+Snake juice is juice that is made from snakes it has lots of benefits for example if you drink snake juice you will be 10 times faster it will give you sage mode which allows you to know where anyone is and it makes you 14 times stronger and lets you hit people without even touching them. The juice also gives you extra chakra which can be very useful in scenarios where you are fighting 6 people with orange hair who will cause you true pain. It boosts your stamina, reflexes, and durability it allows you to sense attacks without seeing them and it puts an orange, purple, black, red, or green oval around your eyes
